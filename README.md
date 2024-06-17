@@ -8,5 +8,5 @@ I'm a student of Japanese language at the University of Ca' Foscari in Venice an
 
 I still don't have a project lol
 
-#Assignments for 24/06
+# Assignments for 24/06
 For the next week complete the README file
