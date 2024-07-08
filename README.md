@@ -7,5 +7,6 @@ I'm a student of Japanese language at the **University of Ca' Foscari** in Venic
 ## My projects
 
 I still don't have a project lol. But I'm start thinking about my Master Thesis. 
+My experience in Sapporo is going really well, I'm going to miss this university a lot. 
 
-![hokudai](https://github.com/annamariaferiozzi/annamariaferiozzi.github.io/assets/173023822/616fc40a-4bb0-4d72-bae6-9a583630632e)
+![WhatsApp Image 2024-07-07 at 11 06 41](https://github.com/annamariaferiozzi/annamariaferiozzi.github.io/assets/173023822/e1191ac2-5112-416c-a584-243232be6a61)
