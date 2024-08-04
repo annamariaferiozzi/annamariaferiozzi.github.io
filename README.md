@@ -3,8 +3,9 @@
 
 ## About me
 
-Hello everyone! My name is Anna Maria Feriozzi. ![image](https://github.com/user-attachments/assets/e1eac512-9ffc-4ec4-a1c7-82e0032eb1ab) 
+Hello everyone! My name is Anna Maria Feriozzi. 
 
+![image](https://github.com/user-attachments/assets/e1eac512-9ffc-4ec4-a1c7-82e0032eb1ab) 
 
 I'm a student of the Master Course _Language and Civilisation of Asia and Mediterranean Africa_, Japanese curriculum at the **University of Ca' Foscari** in Venice. I'm currently doing an exchange program as a Special Auditor at Hokkaido University in the _Graduate School of Media, Communication and Tourism Studies_. Besides Japanese language corses, I'm doing lectures such as Tourist Attractions, Art Tourism, Enviromental society and Search Strategies. 
 
