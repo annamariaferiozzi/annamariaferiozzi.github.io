@@ -13,7 +13,7 @@ I finished last year a Bachelor's Degree in Japanese Language, Culture and Socie
 
 With my job experiences I've gained experience in leading tour or park groups, in the publishing industry as publisher. 
 
-## My hourney as an International Students
+## My journey as an International Students
 ![image](https://github.com/user-attachments/assets/1dae80c5-d49d-4205-ae24-6f5011cb952e) 
 
 My journey in Japan has been one of the most meaningful experience of my life! I made so many memorable memories, the difficulties such as facing cultural and language differences made me grow as a person, I met many people that inspired me and I improved my language skills so much. 
